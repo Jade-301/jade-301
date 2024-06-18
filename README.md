@@ -10,6 +10,6 @@ meu nome é João pedro de moraes
 
 ### você pode entrar em contato comigo 📫
 
-00001098292443sp@al.educacao.sp.gov.br
+00001076481747sp@al.educacao.sp.gov.br
 
 ![]()
